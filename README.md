@@ -1,0 +1,2 @@
+# MEKANSIZ
+sapsızlar mekanı 
